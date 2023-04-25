@@ -6,7 +6,7 @@ My name is RUKAYAT KAREEM,
 I am a front-end web dev @ START INNOVATION HUB,
 I am passionate about creating a better world with the use of technology ,
 As a woman,the whole world tend to think less of us when it comes technology
-but am here to prove them wrong,like its known women are multi-taskers,
+but I'm here to prove them wrong,like its known women are multi-taskers,
 we can actually do more than just being a mother for children,
 we can become mothers of technology!
 all it takes is ONE WOMAN at a time to lift another woman!
